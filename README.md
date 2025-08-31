@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **suryagautam999@gmail.com**
 
-- ⚡ I my free time **I play cricket and do physical activities**
+- ⚡ In my free time **I play cricket and do physical activities**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
